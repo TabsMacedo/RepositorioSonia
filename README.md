@@ -4,7 +4,7 @@ Kelvis Passou por aqui :sunglasses: \*\*) Segue no insta amores: @Kelvis_Xakriab
 PURURUCA SALGADA 171 PASSOU POR AQUI <br>
 Dan passou por aqui! <br>
 
-Alisson passou por aqui
+Alisson passou por aqui<br>
 
 
 
@@ -44,4 +44,5 @@ Jeronimo Passou por aqui :rocket: <br>
 
 Nataly Costa passou aqui <br>
 FreitasProcopio passou por aqui! Fé nas crianças !<br>
-Tábs passou por aqui
+Tábs passou por aqui <br>
+rogersoub07 Passou por aqui <br>
