@@ -42,3 +42,10 @@ Este repositório é um espaço onde os alunos do curso **Programadores do Amanh
 
 ---
 
+### [Emily Souza da Silva]
+
+> **Mensagem:**  
+> Tabatá, obrigada por tudo que fez por nós. Todos os ensinamentos, todas as risadas e todos apoio. Assim que como você já ajudou muito a gente, imagino e tenho certeza que com essa mudança você vai ajudar e mudar a vida de muitas outras pessoas.
+> Desejo tudo de bom para você e sucesso! Você é a melhor!
+
+---
