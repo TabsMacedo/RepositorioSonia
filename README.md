@@ -33,5 +33,12 @@ Este repositório é um espaço onde os alunos do curso **Programadores do Amanh
 > Aqui você pode escrever sua mensagem pessoal de despedida, expressando sua gratidão e compartilhando o que aprendeu durante o curso.
 
 ---
+---
 
+### [Kelvis 🫦]
+
+> **Mensagem:**  
+> Tabatá, obrigado por tudo... voce foi um anjo nas nossas vidas, obrigado por todas as risadas... tudo de mais maravilhoso na sua jornada
+
+---
 
