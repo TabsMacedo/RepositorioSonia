@@ -38,8 +38,8 @@ Este repositório é um espaço onde os alunos do curso **Programadores do Amanh
 ### [Kelvis 🫦]
 
 > **Mensagem:**  
-> Tabatá, obrigado por tudo... voce foi um anjo nas nossas vidas, obrigado por todas as risadas... tudo de mais maravilhoso na sua jornada
-
+> Tabatá, obrigado por tudo... voce foi um anjo nas nossas vidas, obrigado por todas as risadas, todos os ensinamentos... tudo de mais maravilhoso na sua jornada, NAO LIGUE O VENTILADOR ENQUANTO FALE DE JS!
+com amor, Kelvis
 ---
 
 ### [Emily Souza da Silva]
