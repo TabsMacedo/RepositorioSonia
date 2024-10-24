@@ -23,7 +23,7 @@ Este repositório é um espaço onde os alunos do curso **Programadores do Amanh
 > Professora Tábata,
 > Quero agradecer de coração por tudo o que você fez durante o curso "Programadores do Amanhã". Sua paixão pelo que ensina e seu apoio foram super importantes para o meu aprendizado.
 > Valeu por compartilhar seus conhecimentos e por sempre estar disposta a ajudar. Vou levar comigo as lições valiosas que aprendi e que vão me acompanhar na minha jornada como
-> programador. Você é simplesmente incrível!
+> programadora. Você é simplesmente incrível!
 
 ---
 
@@ -54,3 +54,5 @@ com amor, Kelvis
 >**mensagem**
 > Tábata,quero deixar meu agradecimento por toda a sua contribuição para minha aprendizagem na programação e para o grupo como um todo, que sua jornada seja iluminada cheia de boas pessoas que sua luz transmita a pessoa maravilhosa que você é e que nunca vou esquecer de você como professora e boa sorte na sua nova turma na sua nova viagem.foi muito bom dividir conhecimento ,uma sala de aula com vc . 
 > e especialmente um planeta!! <3
+
+---
