@@ -27,12 +27,12 @@ Este repositório é um espaço onde os alunos do curso **Programadores do Amanh
 
 ---
 
-### [Nome do aluno]
+### [Luiz Pureza]
 
 > **Mensagem:**  
-> Aqui você pode escrever sua mensagem pessoal de despedida, expressando sua gratidão e compartilhando o que aprendeu durante o curso.
+> diversão, palavra que define nossa professora amada Tábata. Pense numa professora que é descontraída e ensina as coisas de uma forma que todos entendam, elas estar sempre disposta a sanar literalmente todas as dúvidas dos alunos! Não só eu como todos os alunos gostaríamos de agradecer pelo carinho e toda atenção, continua assim Tab.. muito carismática e inteligente..
+Voooaaa tab!!
 
----
 ---
 
 ### [Kelvis 🫦]
