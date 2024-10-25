@@ -62,6 +62,15 @@ com amor, Kelvis
 > Desejo a você todo sucesso do mundo! Você merece o melhor, e com certeza vai alcançar ainda mais. Vai com tudo, você é incrível!
 
 ---
+### [Jerônimo Santos Rodrigues]
+
+>**mensagem**
+> Queria agradecer por toda dedicação e tempo investidos para nos ajudar, tirando nossas trezentas duvidas, utilizando exemplos simples e analogias bem legais, assim facilitando o entendimento e comprienção dos conteudos.
+> Não vou esquecer de fazer o forms pode ficar tranquila kkkk.
+> Mais uma vez obrigado por todo carinho, tempo, paciencia e conselhos que deu para gente, foram muito valiosos e me ajudam muito nos códigos e também na minha vida. 
+> Boa sorte nessa nova aventura que está preste a começa, coloque os cintos e faz seu nome que já é seu! :tada: :rocket: :rocket: 
+---
+
 ### [Aluno]
 
 >**mensagem**
