@@ -55,6 +55,12 @@ com amor, Kelvis
 > Tábata,quero deixar meu agradecimento por toda a sua contribuição para minha aprendizagem na programação e para o grupo como um todo, que sua jornada seja iluminada cheia de boas pessoas que sua luz transmita a pessoa maravilhosa que você é e que nunca vou esquecer de você como professora e boa sorte na sua nova turma na sua nova viagem.foi muito bom dividir conhecimento ,uma sala de aula com vc . 
 > e especialmente um planeta!! <3
 
+### [Kauê]
+
+>**Mensagem**
+> Tabatá, muito obrigado por tudo que você fez por nós. Cada ensinamento, cada risada e todo o apoio que você nos deu foram inestimáveis. Assim como você transformou nossas vidas, tenho certeza de que nessa nova etapa você também fará a diferença na vida de muitas outras pessoas.
+> Desejo a você todo sucesso do mundo! Você merece o melhor, e com certeza vai alcançar ainda mais. Vai com tudo, você é incrível!
+
 ---
 ### [Aluno]
 
